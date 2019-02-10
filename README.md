@@ -1,1 +1,1 @@
-Gives updates on discord.
+Such a beautiful
